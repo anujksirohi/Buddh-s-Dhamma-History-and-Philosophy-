@@ -1,4 +1,4 @@
-# Buddh-s-Dhamma-History-and-Philosophy
+# Buddha-s-Dhamma-History-and-Philosophy
 ## Decline of Buddhism in India
 1. Kanai Lal Hazra, The rise and decline of Buddhism in India
 2. K.T.S. Sarao, The Decline of Buddhism in India (A Fresh Perspective)
